@@ -32,7 +32,9 @@ Fourth prayer 2024 prayer meeting and Bible study
 - Comentamos sobre um acontecimento em específico que ocorreu durante a semana: relacionado à uma música de uma jovem do Norte do Brasil que está causando muita discussão dentro e fora da igreja... 
 - E que, particularmente, acretito que o Senhor está usando para tocar em alguns temas sensíveis na nossa sociedade.
 
-- [Evangelho de Fariseus](https://www.letras.mus.br/aymee/evangelho-de-fariseus-2/)
+- [Evangelho de Fariseus - original](https://www.letras.mus.br/aymee/evangelho-de-fariseus-2/)
+
+- [Evangelho de Fariseus - concurso](https://www.youtube.com/watch?v=RhA6h3YM35c&t=379)
 
 ### begin_verse
 
