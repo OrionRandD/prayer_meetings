@@ -15,7 +15,7 @@ Fourth prayer 2024 prayer meeting and Bible study
 
 ## end_preview
 
-# Terceira reunião de oração
+# Quarta reunião de oração
 - Prayer meeting
 
 ## Bem vindo!
