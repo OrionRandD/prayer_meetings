@@ -40,7 +40,7 @@ sixth prayer 2024 prayer meeting and Bible study
 
 - Ouvimos uma música que corrobora os aspectos que iriamos abordar no estudo bíblico e no que seria discutido.
 
-- [Quão Grande é O Senhor] (https://youtube.com/watch?time_continue=2&v=sWSKtoURGAg&embeds_referring_euri=https%3A%2F%2Fduckduckgo.com%2F&feature=emb_logo)
+- [Quão Grande é O Senhor](https://www.youtube.com/watch?v=sWSKtoURGAg)
 
 ### begin_verse
 
