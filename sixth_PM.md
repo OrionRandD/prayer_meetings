@@ -47,14 +47,21 @@ sixth prayer 2024 prayer meeting and Bible study
 Gadol Elohai
 
 Chorus:
+
 Gadol Elohai
+
 Shiru ki Gadol Elohai
+
 Kol echad Yirei 
+
 Ki gadol Elohai
 
 Bridge (Name above all names):
+
 Shem me'al kol shem
+
 Otcha raui le'halel
+
 Libi yashir ki gadol Elohai
 
 ### end_verse
