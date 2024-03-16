@@ -15,7 +15,7 @@ sixth prayer 2024 prayer meeting and Bible study
 
 ## end_preview
 
-# Quinta reunião de oração
+# Sexta reunião de oração
 - Prayer meeting
 
 ## Bem vindo!
