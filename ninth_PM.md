@@ -55,34 +55,34 @@ ninth prayer 2024 prayer meeting and Bible study
 
 ### begin_verse
 
-Eis vem chegando a madrugada
-Sol que desponta amanhecer
-Vem Madalena pela estrada, canta cansada de sofrer
+- Eis vem chegando a madrugada
+- Sol que desponta amanhecer
+- Vem Madalena pela estrada, canta cansada de sofrer
 
-Já faz dois dias que o mataram, não dá nem pra entender
-Quanta tristeza e sofrimento
-Nem quero mas viver
+- Já faz dois dias que o mataram, não dá nem pra entender
+- Quanta tristeza e sofrimento
+- Nem quero mas viver
 
-Vem clareando a alvorada
-E o Sol que sempre a iluminou
-Eis pedra enorme retirada
-Da sepultura que encontrou
-Ao ver vazia a tumba fria
-Se entristeceu, chorou
+- Vem clareando a alvorada
+- E o Sol que sempre a iluminou
+- Eis pedra enorme retirada
+- Da sepultura que encontrou
+- Ao ver vazia a tumba fria
+- Se entristeceu, chorou
 
-Quem retirou o meu bom mestre e onde a colocou?
-Não chore mais Maria
-Alguém lhe respondeu
-Claro qual novo dia ficou
-Tudo se esclareceu
+- Quem retirou o meu bom mestre e onde a colocou?
+- Não chore mais Maria
+- Alguém lhe respondeu
+- Claro qual novo dia ficou
+- Tudo se esclareceu
 
-Ressuscitei dos mortos
-Vivo pra sempre estou
-Corre a dizer aos meus irmãos
-Que o Cristo ressuscitou
+- Ressuscitei dos mortos
+- Vivo pra sempre estou
+- Corre a dizer aos meus irmãos
+- Que o Cristo ressuscitou
 
-Lá, lá, lá, ia, lá, ia, lá, iêêo
-Lá, lá, lá, ia, lá, ia, lá, iêêo
+- Lá, lá, lá, ia, lá, ia, lá, iêêo
+- Lá, lá, lá, ia, lá, ia, lá, iêêo
 
 ### end_verse
    
