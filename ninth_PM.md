@@ -26,7 +26,23 @@ ninth prayer 2024 prayer meeting and Bible study
 
 ## Dar seguimento(...)
 
-- Começamos a reuinão conversando sobre a paixão, morte e ressurreição de Cristo. 
+- Começamos a reunião lendo dois textos bíblicos:
+
+### begin_verse
+
+Matthew 28:1: No fim do sábado, quando já despontava o primeiro dia da semana, Maria Madalena e a outra Maria foram ver o sepulcro. (PorAR)
+
+Philippians 3:7-12
+Philippians 3:7: Mas o que para mim era lucro passei a considerá-lo como perda por amor de Cristo;
+Philippians 3:8: sim, na verdade, tenho também como perda todas as coisas pela excelência do conhecimento de Cristo Jesus, meu Senhor; pelo qual sofri a perda de todas estas coisas, e as considero como refugo, para que possa ganhar a Cristo,
+Philippians 3:9: e seja achado nele, não tendo como minha justiça a que vem da lei, mas a que vem pela fé de Cristo, a saber, a justiça que vem de Deus pela fé;
+Philippians 3:10: para conhecê-lo, e o poder da sua ressurreição, e a participação dos seus sofrimentos, conformando-me a ele na sua morte,
+Philippians 3:11: para ver se de algum modo posso chegar à ressurreição dentre os mortos.
+Philippians 3:12: Não que já a tenha alcançado, ou que seja perfeito; mas vou prosseguindo, para ver se poderei alcançar aquilo para o que fui também alcançado por Cristo Jesus. (PorAR)
+
+### end_verse
+
+- Depois falamos sobre a paixão, morte e ressurreição de Cristo. 
 - E a Le mencionou que nós, dos países latino-americanos, costumamos nos focar mais na ressurreição ao invés da paixão e morte do Senhor... 
 - Contudo, devemos nos lembrar que a nossa salvação passou pelo sofrimento imensurável do nosso Jesus.
 - Os irmaõs enfatizaram, nos seus agradecimentos, a salvação, amor, filiação e perseverança na fé no nosso caminhar com o Senhor. 
