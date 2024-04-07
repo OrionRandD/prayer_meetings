@@ -41,7 +41,7 @@ tenth prayer 2024 prayer meeting and Bible study
 
 - Pediu para orarmos, especialmente pela Armênia, a terra onde a Arca de Noé pousou depois do Dilúvio...
 - E também pela Turquia e Azerbaijão; Taiwan (lembrando o terremoto); Nova Iorque (por causa do terremoto); ONU (caso o Senhor estiver enviando uma mensagem clara aos líderes e governantes mundiais).
-- Aproveitamos e também oramos pelos Estados brasileiros que estavam representados pelo grupo de OEB: Piauí, Maranhão, Pernambuco, Paraíba, Bahia, São Paulo, Brasília, DF, Minas Gerais, e o sul do país (sobretudo pelas crianças).
+- Aproveitamos e também oramos pelos Estados brasileiros que estavam representados pelo grupo de OEB: Ceará, Piauí, Maranhão, Pernambuco, Alagoas, Paraíba, Bahia, São Paulo, Brasília, DF, Minas Gerais, e o sul do país (sobretudo pelas crianças).
 - Fizemos essa oração...
 
 - E depois houve mais espaço para agradecimentos:
