@@ -27,59 +27,63 @@ thirteenth prayer 2024 prayer meeting and Bible study
 ## Dar seguimento(...)
 
 - Começamos a reunião de oração refletindo sobre as lições de vida que
-  podemos aprender e imitar da nossa personagem em apreço.
+  podemos aprender e imitar com  personagem em apreço.
 - Alguns responderam de forma resumida e contundente.
 - Também nos lembramos de uma amiga que estava esperando o resultado
-  de uma consulta que estava causando apreensão e inseguraça...
-- Mas, graças a Deus,o resultado trouxe alívio a ela.
-- Pedimos por pessoas que conhecemos e estão a ponto de fazer cirurgias.
-- E, em especial por uma filha única.
-- Também pedimos por uma família, bem próxima que está de luto, pois o
-  pai (avó, e sogro, ao mesmo tempo) faleceu recentemente e eles
+  de uma consulta que causou apreensão e insegurança nela...
+- Mas, graças a Deus, o resultado trouxe alívio a ela.
+- Pedimos por pessoas que conhecemos e estão na iminência de fazer cirurgias.
+- E, em especial por uma filha única de um casal que amamos.
+- Também pedimos por uma família, bem próxima, que está de luto, pois o
+  pai (e avó, e sogro, ao mesmo tempo) faleceu recentemente e eles
   necessitam muito das nossas orações.
-- Pedimos também por um amigo em BSB que ainda está em processo de
-  recuperação de uma cirurgia bem sensível.
+- Pedimos também por um amigo, em BSB, que ainda está em processo de
+  recuperação de uma cirurgia que foi bem complicada.
 - Também nos lembramos de um casal de pastores, próximos do nosso
-  bairro que a esposa está bem abatida e com fibromialgia e o esposo
+  bairro, que a esposa está bem abatida com as lutas do dia a dia,
+  sofrendo também com fibromialgia, e o esposo
   fez cirurgia e continua enfrentando complicações pós-cirúrgicas...
 - E, para terminar, os pedidos de oração que, na realidade, nunca
-  terminam, pedimos por outro casal próximo e que o esposo vai fazer
+  acabam, fizemos referência a outro casal, amigos nossos, que o esposo vai fazer
   um exame sob suspeita de algo grave.
 - Finalmente, nos lembramos de uma aluna da Le que compartilhou que
   está chocada com o número de suicídios de jovens no país, do
   hemisfério norte, onde está morando e desse tipo de realidade também
-  estar bem próximo dela na cidade onde reside.
+  estar atingindo a própria cidade onde reside.
 - Portanto, nos lembramos também de interceder por ela e pelos jovens
   daquele país.
-- Depois, a Le orou e nós concordamos, já que ela estava com a lista
-  que é bastante extensa em mãos.
+- Depois, a Le orou, e nós concordamos. Já que ela estava com a lista
+  que era, e é, bastante extensa em mãos.
 - Chegamos a comentar, aqui em casa, que essa foi uma das semanas
-  "mais pesadas" que tivemos até agora nesse ano...
+  "mais pesadas" que tivemos até agora nesse ano por causa das muitas
+  necessidades dos santos em nossa cidade e em todos os lugares ao
+  redor do mundo...
 - Depois a palavra foi passada para V e demos prosseguimento ao estudo
   bíblico.
-- Antes de iniciar, agradeci a fidelidade do nosso pequeno grupo e
-  persistência em continuar conosco nessa jornada de investigação,
+- Antes de iniciar, agradeci a fidelidade do nosso pequeno grupo e a
+  persistência dele em continuar conosco nessa jornada de investigação,
   aprendizagem e provimento de alimento espiritual por parte do Senhor
   para nossas vidas.
 - Fizemos uma breve recapitulação do que havíamos visto no encontro
-  anterior e também abordamos assuntos paralelos como por exemplo: o
+  anterior e também abordamos assuntos paralelos ao tema principal como, por exemplo: o
   objetivo principal da composição do N.T. que, de fato, não é contar
   a história detalhada da vida de Cristo.
 - Mas, dar ao homem, tanto judeus como gentios a oportunidade de
   reconhecer que Jesus é o Messias prometido do V.T. e o Deus Filho
   que, através da Sua obra, morte e ressurreição, é o único capaz de
-  nos salvar e conduzir de volta a Deus.
+  nos salvar e nos conduzir de volta a Deus.
 - Além disso, falamos um pouco do Tabernáculo do V.T. como símbolo do
   Céu; do sacerdócio perfeito de Cristo que é superior ao sacerdócio
-  levítico, pois é da ordem de Melquisedeque, dentre outros temas
+  levítico, pois, tal sacerdócio, é da ordem de Melquisedeque; e
+  outros assuntos
   como, por exemplo, o processo contínuo da salvação.
-- Para terminar o estudo do nosso personagem que, finalmente, vou
+- Para terminar o estudo do nosso personagem, que, finalmente, vou
   falar agora quem era: Maria Madalena.
-- Repassamos as lições que podemos aprender com ela, como sejam:
+- Repassamos as lições que pudemos aprender com ela, como sejam:
   profunda gratidão; amor profundo; profunda fidelidade e profunda
-  adoração. Além do que os irmãos já haviam mencionado: a elevação do
-  "status" da mulher por Jesus Cristo; dedicação...
-- No final, tentei mostras as fotos do Restaurante Maria Madalena, na
+  adoração. Além das outras que os irmãos já haviam mencionado: a elevação do
+  "status" da mulher por Jesus Cristo; dedicação, etc...
+- No final, tentei mostras as fotos do restaurante Maria Madalena, na
   Galileia, mas, infelizmente o site mudou...
 - E como não tínhamos muito tempo mais, ouvimos a última música que
   tínhamos planejado
@@ -245,19 +249,19 @@ Some see Him walking from an empty grave...
 
 - Então fizemos uma oração final; demos oportunidade para novos
   pedidos de oração e terminamos a reunião e o estudo bíblico sobre
-  essa personagem fascinante e que muito nos inspira a cultivarmos um
+  essa personagem fascinante que muito nos inspira a cultivarmos um
   relacionamento sadio e profundo com o nosso amado Senhor e Salvador
-  Jesus Cristo e também com aqueles que amam, de coração, a Ele.
-- E o mais importante é que tivemos um período precioso e produtivos
-  durante essas treze semanas estudando a Palavra de Deus que nos
+  Jesus Cristo, e também com aqueles que O amam de coração.
+- E o mais importante é que tivemos um período precioso e produtivo
+  durante essas treze semanas que "voaram", estudando a Palavra de Deus que nos
   alimenta e nos fortalece para continuar a nossa jornada seguindo a
-  Cristo até o Grande dia que nos encontramos com Ele na glória eterna.
+  Cristo até aquele Grande dia que nos encontraremos com Ele na glória eterna.
 - Não esqueçamos de orar uns pelos outros durante a semana e
-  continuarmos orando pelos pedidos citados acima também...
+  continuemos orando pelos por todos os pedidos citados acima também...
 
 - Saudades...
 
-- Até o próximo sábado, querendo o Senhor
+- Até o próximo sábado, querendo o Senhor.
 
 - Nesta reunião estávamos (Day, La, K, Le, B, e V)
 
