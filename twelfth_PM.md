@@ -5,7 +5,7 @@
 
 Esta é nossa décima segunda reunião de oração e estudo bíblico de 2024.
 
-This is our eleventh  prayer meeting for our Bible study sessions in 2024.
+This is our twelfth prayer meeting for our Bible study sessions in 2024.
 
 ## begin_preview
 
