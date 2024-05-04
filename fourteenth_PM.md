@@ -29,7 +29,7 @@ fourteenth prayer 2024 prayer meeting and Bible study
 - Começamos a reunião de oração com La falando sobre uma experiência que teve no trabalho acerca da leitura de alguns versículos numa certa Bíblia que lhe causou estranheza...
 - Depois a Le passou a palavra pra mim e lembrei da tragédia que as fortes chuvas estão causando no Rio Grande do Sul.
 - Daí uma lista de oração foi passada pra mim com as seguintes necessidades:
-- Cirurgia do iminente do cunhado da Le.
+- Cirurgia iminente do cunhado da Le.
 - Cirurgia prevista de um pessoa, já idosa, ligada a irmãos do grupo de oração e estudo bíblico.
 - Resultado da consulta, um tanto quanto preocupante, de um senhor amigo nosso.
 - Agradecimento pela recuperação de um amigo que fez cirurgia há cerca de um ano.
