@@ -107,7 +107,7 @@ Nebaiote.
 - Genesis 20:12: Além disso ela é realmente minha irmã, filha de meu
   pai, ainda que não de minha mãe; e veio a ser minha mulher.
 
-  - Pecados de família, outra vez:
+- Pecados de família, outra vez:
 
 - Genesis 35:22: Quando Israel habitava naquela terra, foi Rúben e
   deitou-se com Bila, concubina de seu pai; e Israel o soube. Eram
