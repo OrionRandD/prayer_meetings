@@ -18,7 +18,7 @@ fifteenth prayer meeting and Bible study of 2024
 # Décima quinta reunião de oração
 - Prayer meeting
 
-## Bem vido!
+## Bem vindo!
 
 - Welcome!
 - Que maravilha!
