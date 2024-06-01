@@ -80,7 +80,8 @@ Nineteenth prayer meeting and Bible study of 2024
 - Observaçâo: junto com esse estudo bíblico, foram acrescentandos dois outros: Covas no Vale; Corações Endurecidos e O que é o Sionismo Cristão (uma visão distorcida da doutrina bíblica).
 - Por favor, se possível baixem os documentos, acessem o link e estudem para a próxima reunião.
 
-- Nesta reunião estávamos (V, La, Le, K e B)
+- Nesta reunião estávamos (V, La, Day, Le, K e B)
 
 - VRFdS
 - Sat Jun  1 06:08:48 PM -03 2024
+
