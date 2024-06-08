@@ -71,7 +71,7 @@ Twentieth prayer meeting and Bible study of 2024
 - Todos participaram...
 - E fomos alimentados pela Palavra...
 
-- [Israel's Hilltop Youth: Thou Shalt Not Kill] (https://www.youtube.com/watch?v=GqSfrluRGAc)
+- [Israel's Hilltop Youth: Thou Shalt Not Kill](https://www.youtube.com/watch?v=GqSfrluRGAc)
 
 - Obs.: Day não pode estar (trabalho...)
 
