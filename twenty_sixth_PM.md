@@ -29,6 +29,11 @@ Twentieth sixth prayer meeting and Bible study of 2024
 - Tivemos alguns contratempos com o aspecto técnico da reunião
 - Mas, graças a Deus conseguimos resolver...
 
+- A música que não conseguimos cantar juntos foi essa:
+- [Bondade de Deus](https://www.letras.mus.br/isaias-saad/bondade-de-deus/)
+- Mas, poderá ser acessada, ouvida e cantada por cada um de nós durante a semana
+- Pra honra, glória e louvor do nosso Deus e Pai...
+
 - Le começou com:
 - Agradecimentos
 - Vida do Mig. (bebezinho da Bríg. que está fora de perigo)
