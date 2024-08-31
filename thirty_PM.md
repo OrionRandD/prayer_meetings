@@ -5,7 +5,7 @@
 
 Essa é nossa trigésima reunião de oração e estudo bíblico de 2024.
 
-This is our twenty ninth prayer meeting Bible session on 2024.
+This is our thirty prayer meeting Bible session on 2024.
 
 ## begin_preview
 
