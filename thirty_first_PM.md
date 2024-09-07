@@ -1,7 +1,7 @@
 ## title: Thirty first PM
 ## sáb 31 ago 2024 18:24:07 -03
 
-## discription:
+## description:
 
 Essa é nossa trigésima primeira reunião de oração e estudo bíblico de 2024.
 
@@ -15,7 +15,7 @@ Thirty first prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-## Trigésima reunião de oração
+## Trigésima primeira reunião de oração
 
 - Prayer meeting
 
