@@ -65,20 +65,18 @@ Thirty second prayer meeting and Bible study of 2024
 - Que a voz da criação
 - Se erga para dar
 - Louvor somente a Deus
-- 
+
 - Deus, somente Deus
 - Eternamente em nós há de inspirar
 - A alegria de adorar
 - Desejo de exaltar
 - A Deus somente a Deus
-- 
+
 - Deus, somente Deus
 - Domina o trono do universo
 - Que a voz da criação
 - Se erga para dar
 - Louvor somente a Deus
-
-- 
 
 - Depois da música, o Dino travou e tive que passar para a Le. dar continuidade com a lição sobre o profeta Micaías
 - 2 Cr 18:1 - 2 Cr 21:3
