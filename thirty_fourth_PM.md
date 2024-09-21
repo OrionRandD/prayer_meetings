@@ -82,6 +82,7 @@ primeiro Samuel 15:21: mas o povo tomou do despojo ovelhas e bois, o melhor do a
 - Elias partida...
 - 2 Rs 2:1
 
+- Tarefinha (ler):
 - A história de Eliseu (e o cumprimento da porção dobrada do espírito de Elias na vida dele)
 - I Rs 17:1 - II Rs 10:36
 
