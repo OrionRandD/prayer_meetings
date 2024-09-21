@@ -91,7 +91,6 @@ primeiro Samuel 15:21: mas o povo tomou do despojo ovelhas e bois, o melhor do a
 
 - Jeú (o rei que Deus usa para cumprir a Palavra dEle contra a casa de Acabe - vingador de Deus)
 
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 
 - Nota: A internet do B. caiu ele não pode retornar  :(
 
