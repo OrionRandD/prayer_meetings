@@ -36,9 +36,13 @@ Thirty seventh prayer meeting and Bible study of 2024
 - Agradecimento pela pregação do Evangelho e conversão de de muitos que Israel e as igrejas chamam de "inimigos"...
 - Pelo grupo de oração e estudo bíblico
 
+- ;;;;;;;;;;;;;;;;;;;;;;
+
 - Filipenses 4:5: Seja a vossa moderação conhecida de todos os homens. Perto está o Senhor.
 - Filipenses 4:6: Não andeis ansiosos por coisa alguma; antes em tudo sejam os vossos pedidos conhecidos diante de Deus pela oração e súplica com ações de graças;
 - Filipenses 4:7: e a paz de Deus, que excede todo o entendimento, guardará os vossos corações e os vossos pensamentos em Cristo Jesus.
+
+- ;;;;;;;;;;;;;;;;;;;;;;
 
 - pedidos de oração:
 - Pelas crianças (hoje é dia das crianças)
