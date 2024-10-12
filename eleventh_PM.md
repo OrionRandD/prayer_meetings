@@ -11,7 +11,7 @@ This is our eleventh  prayer meeting for our Bible study sessions in 2024.
 
 Décima Primeira reunião de oração e estudo bíblico de 2024
 
-eleventh prayer 2024 prayer meeting and Bible study
+Eleventh prayer 2024 prayer meeting and Bible study
 
 ## end_preview
 
@@ -53,7 +53,6 @@ eleventh prayer 2024 prayer meeting and Bible study
 - O que se segue é um resumo do que abordamos nessa reunião.
 - Acreditamos que o conteúdo foi suficiente para esclarecer o que era o Israel antigo ou chamado Israel do Velho Testamento ou, ainda, dos tempos bíblicos.
 
-
 ### begin_verse
 
 ** O Israel Antigo
@@ -78,7 +77,7 @@ eleventh prayer 2024 prayer meeting and Bible study
 - Ele vai com algumas pessoas...
 - Retorna... (reconstruir os muros e da cidade); enfrenta oposição (Samaritanos). Construção física.
 - Esdras vai reconstruir a vida espiritual
-- 15 anos - o povo já estava reestabelecido...
+- 15 anos - o povo já estava restabelecido...
 - Construir mansões na terra; e cuidar da própria vida...
 - Profetas para advertir o povo (Ageu, Zacarias e Malaquias)...
 - 400 anos de "silêncio de Deus"...
