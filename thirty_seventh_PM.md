@@ -71,7 +71,7 @@ Thirty seventh prayer meeting and Bible study of 2024
 -   2 Empreendeu inúmeras guerras, apoderou-se de muitas cidades e matou vários reis da terra.
 -   3 Atravessou-a até aos seus confins, apoderou-se das riquezas de vários povos, e a terra rendeu-se-lhe. Tornou-se orgulhoso e o seu coração ensoberbeceu-se.
 -   4 Reuniu poderosos exércitos, submeteu ao seu império muitos povos e os reis pagaram-lhe tributo.
-- 
+
 -   5 Finalmente, adoeceu e viu que a morte se aproximava.
 -   6 Convocou então os seus oficiais, os nobres da sua corte, que com ele tinham sido criados desde a sua juventude, e, ainda em vida, dividiu o império entre eles.
 -   7 Alexandre reinara doze anos e morreu.
@@ -107,9 +107,9 @@ Thirty seventh prayer meeting and Bible study of 2024
 - as esposas choraram no leito nupcial.
 -   28 A terra estremeceu com a dor dos seus habitantes
 - e toda a casa de Jacob se cobriu de vergonha.
-- 
+
 - Ataque a Jerusalém e construção da cidadela
-- 
+
 -   29 Passados dois anos, Antíoco enviou o chefe dos impostos às cidades de Judá e de Jerusalém com numerosas tropas.
 -   30 Dirigiu aos habitantes palavras de paz, cheias de falsidade, nas quais eles acreditaram. Mas, de repente, lançou-se sobre a cidade, causando nela grandes estragos e matando muita gente em Israel.
 -   31 Saqueou-a, incendiou-a, destruiu muitas casas e as muralhas que a cercavam.
