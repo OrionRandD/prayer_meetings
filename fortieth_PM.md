@@ -29,7 +29,7 @@ Fortieth prayer meeting and Bible study of 2024
 
 - Agradecimentos:
 - Música (L)
-- [Peace in Christ](htps://www.youtube.com/watch?v=dDqMRNBJwzM)
+- [Peace in Christ](https://www.youtube.com/watch?v=dDqMRNBJwzM)
 - Última aplicação de corticóide (K)
 - Irmã com problema de aneurisma (T) foi curada pelo Senhor
 - Pela família (B)
