@@ -4,13 +4,13 @@
 
 ## description:
 
-Essa é nossa quadragésima nona reunião de oração e estudo bíblico de 2024.
+Essa é nossa quadragésima reunião de oração e estudo bíblico de 2024.
 
 This is our fortieth prayer meeting Bible session on 2024.
 
 ## begin_preview
 
-Quadragésima nona reunião de oração e estudo bíblico de 2024
+Quadragésima reunião de oração e estudo bíblico de 2024
 
 Fortieth prayer meeting and Bible study of 2024
 
@@ -35,6 +35,7 @@ Fortieth prayer meeting and Bible study of 2024
 - Pela família (B)
 - Pela chuva (V)
 - Pelos canários (V)
+- Romanos 1; Salmo 19 (Teologia Natural)
 
 - Pedidos:
 - Sabedoria de Deus pra igreja (acusada de ser falso mestre) (B)
