@@ -66,8 +66,7 @@ Forty-first prayer meeting and Bible study of 2024
 
 - Surviving in the Siberian Wilderness for 70 Years :surviving:in:the:Siberian:Wilderness:for:70:Years: 
 
-- (Agafia Lykov) [https://www.youtube.com/watch?v=tt2AYafET68]
-
+- (Agafia Lykov)[https://www.youtube.com/watch?v=tt2AYafET68]
 - Surviving in the Siberian Wilderness for 70 Years
 
 - VRFdS
