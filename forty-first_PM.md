@@ -38,7 +38,7 @@ Forty-first prayer meeting and Bible study of 2024
 - Pelos cristãos verdadeiros que estão sendo perseguidos dentro da igreja
 - Pela (Dacl). Pediu demissão... Graça da parte de Deus... Saúde física, mental e espiritual
 - Pela mãe do B. (minha irmã). Saúde
-- Saúde da avó (ir. Fr) da K. Suplemento alimentar (Isosource soya)
+- Saúde da avó (ir. Fr) da K. Suplemento alimentar (isosource soya)
  (que é caro)
 
 - Estudo Bíblico:
@@ -55,7 +55,7 @@ Forty-first prayer meeting and Bible study of 2024
 
 - A história de Agafia Lykov
 
-- Em 1936, uma família de Cristãos ortodoxos Russos fugiu em diração à vasta taiga da Sibéria para escapar da perseguição de Stalin e proteger o stilo de vida deles e fé cristã que professavam.
+- Em 1936, uma família de Cristãos ortodoxos Russos fugiu em direção à vasta taiga da Sibéria para escapar da perseguição de Stalin e proteger o estilo de vida deles e fé cristã que professavam.
 - Os Lykovs acabaram se estabelecendo nas montanhas Sayan, a 260 quilômetros de distância qualquer sinal de civilização.
 - Em 1944, Agafia Lykov, nasceu neste ambiente.
 - Hoje, ela é a última Lykov sobrevivente, e permanece firme em sua fé em Cristo e reclusão.
@@ -66,7 +66,11 @@ Forty-first prayer meeting and Bible study of 2024
 
 - Surviving in the Siberian Wilderness for 70 Years :surviving:in:the:Siberian:Wilderness:for:70:Years: 
 
+- Clique no link abaixo (segure a tecla Ctrl e clique com o mouse para abrir em
+outra aba)
+
 - [Agafia Lykov](https://www.youtube.com/watch?v=tt2AYafET68)
+
 - Surviving in the Siberian Wilderness for 70 Years
 
 - VRFdS
