@@ -51,6 +51,7 @@ Forty-second prayer meeting and Bible study of 2024
 - A Arca como símbolo da misericórdia de Deus 
 - Pois Noé demorou cerca de 120 anos pregando e construindo a Arca 
 - [Noah, the Flood, and 120 Years](https://apologeticspress.org/noah-the-flood-and-120-years-5374)
+- Observação: usem o google tradutor de websites para ler o artigo acima (basta copiar o endereço do artigo e colar nele (escolha a língua de origem, no caso, inglês, e a de destino, no caso, português brasileiro) que conseguem ler o artigo e entender a lógica dos 120 anos...
 - Além do mais discutimos sobre a existência de gigantes pós-diluvianos que haviam em praticamente todas as tribos dos Cananeus e que foram destruídos pelo exército de Davi...
 - Questões importantes foram levantadas, como por exemplo: 
 - Qual a origem deles já que a geração dos antediluvianos, que também incluíam gigantes, fora totalmente destruída? 
