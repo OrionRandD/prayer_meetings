@@ -44,7 +44,7 @@
 - Feitos no sábado
 - K. (decisão importante) 
 - Dac. (continuar ornando por ela)
-- Seu Dem. (saúde...)
+- Seu Dem. (idoso - pai da Dey e Dac. - saúde...)
 - Idosos (especialmente, a avó da K.)
 - Aqueles, sobretudo, idosos, que moram sozinhos...
 - Pelas nossas famílias (A família da Lí.)
@@ -55,12 +55,13 @@
 - Dac., Direção e sabedoria (decisões a serem tomadas, de acordo com a vontade do Senhor...)
 - Para que o Senhor continue limpando as igrejas de pessoas sem temor a Ele que
 - estão em posição de liderança administrativa e, principalmente, espiritual... 
-- Seu Odl (um idoso)
+- Seu Odl (um viúvo idoso)
 - Família do Pr. da Bola de Neve...
+- Avós do B. (M. e N. (idosos) - meus pais)
+- Minha sogra (Dl. idosa - mãe da L.) 
 - Dir. e Ton. (idosos) 
 - Líg. (saúde)
 - Orar uns pelos outros do grupo...
 
 - VRFdS
 - qua 20 nov 2024 21:19:02 -03
- 
