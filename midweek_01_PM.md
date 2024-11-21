@@ -6,6 +6,8 @@
 #
 #####
 
+# Início
+
 - Conversa normal (...)
 - Oração inicial
 
