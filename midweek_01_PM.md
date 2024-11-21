@@ -6,8 +6,6 @@
 #
 #####
 
-# «.midweek01_PM»	(to "midweek01_PM")
-
 - Conversa normal (...)
 - Oração inicial
 
@@ -37,8 +35,6 @@
 - O Senhor abriu uma porta para Isa...
 - Agradecer ao Senhor pela limpeza que Ele está fazendo nas igrejas...
 
-# «midweek01_PM»  (to ".midweek01_PM")
-
 # Pedidos:
 
 - Feitos no sábado
@@ -65,3 +61,4 @@
 
 - VRFdS
 - qua 20 nov 2024 21:19:02 -03
+ 
