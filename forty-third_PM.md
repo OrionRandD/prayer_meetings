@@ -53,7 +53,7 @@ Forty-third prayer meeting and Bible study of 2024
 
 - Estudo bíblico
 
-- Hoje senti a necessidade de ainda terminar a discussão encima de uma pergunta que o B. fez no sábado anterior:
+- Hoje, ainda senti a necessidade de terminar a discussão de uma pergunta que o B. fez no sábado anterior:
 - Se Deus destruiu toda a raça humana antediluviana que incluía também os gigantes (descendentes de um grupo de anjos caídos - Gn 6), complementando com o Livro de Enoque, como é que a Bíblia (em vários lugares, sobretudo no Pentateuco e livro de Josué) relata que haviam gigantes na terra de Canaã antes de depois da Conquista?
 
 - Os gigantes
@@ -100,7 +100,18 @@ Forty-third prayer meeting and Bible study of 2024
 - 4.1. E foi através da descendência delas que o DNA dos nephilim atravessaram para o "outro lado do Dilúvio"...
 
 - 4.2. O fato de Noé ter amaldiçoado o neto, Canaã, seria prova disso. Pois Cão quando viu a nudez de Noé não significaria que ele viu o pai nu depois que se embriagou com vinho, pouco tempo depois da Arca pousar no monte Ararate
-- 4.3. Mas, sim que "descobriu a nudez do pai" foi uma tentativa de Cão de ter intercurso sexual com a sua mãe, esposa de Noé, para salvar sua família da marca dos Nephilim, já que não podia esconder as características físicas de Canaã diante da família, e dos outros irmãos...
+- 4.3. Mas, sim que "**descobriu a nudez do pai**" foi uma tentativa de Cão de ter intercurso sexual com a sua mãe, esposa de Noé, para salvar sua família da marca dos Nephilim, já que não podia esconder as características físicas de Canaã diante da família, e dos outros irmãos...
+ 
+- Levítico 18:1: Disse mais o Senhor a Moisés:
+- Levítico 18:2: Fala aos filhos de Israel, e dize-lhes: Eu sou o Senhor vosso Deus.
+- Levítico 18:3: Não fareis segundo as obras da terra do Egito, em que habitastes; nem fareis segundo as obras da terra de Canaã, para a qual eu vos levo; nem andareis segundo os seus estatutos.
+- Levítico 18:4: Os meus preceitos observareis, e os meus estatutos guardareis, para andardes neles. Eu sou o Senhor vosso Deus.
+- Levítico 18:5: Guardareis, pois, os meus estatutos e as minhas ordenanças, pelas quais o homem, observando-as, viverá. Eu sou o Senhor.
+- Levítico 18:6: Nenhum de vós se chegará àquela que lhe é próxima por sangue, para descobrir a sua nudez. Eu sou o Senhor.
+- Levítico 18:7: **Não descobrirás a nudez de teu pai, nem tampouco a de tua mãe; ela é tua mãe, não descobrirás a sua nudez**.
+- Levítico 18:8: **Não descobrirás a nudez da mulher de teu pai; é nudez de teu pai**.
+- (etc...)
+ 
 - 4.4. Daí entendemos a rigidez da maldição de Noé sobre seu neto Canaã...
 - 4.5. Logicamente, as outras noras de Noé também vieram a gerar descendentes de gigantes e eles acabaram se casando e misturando-se entre sim à medida que o tempo ia passando...
 - 4.6. Esse seria o motivo pelo qual haviam gigantes, e muitos deles em todas as tribos de Canaã na época dos espias e durante as conquistas das terras sob a liderança de Josué e Calebe...
