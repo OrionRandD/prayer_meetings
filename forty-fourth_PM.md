@@ -210,10 +210,11 @@ Forty-fourth prayer meeting and Bible study of 2024
 
 - 3. **Escritos**: Rute, Crônicas, Salmos, Provérbios, Cantares de Salomão, Daniel
 
-- [A Bíblia Judaica - Tanakh](https://www.gotquestions.org/Portugues/Biblia-judaica.html)
 
 - [Divisão da Bíblia Hebraica](http://www.freebiblecommentary.org/special_topics/por/AS_DIVISOES_DA_BIBLIA_HEBRAICA.html)
 
+- [A Bíblia Judaica - Tanakh](https://www.gotquestions.org/Portugues/Biblia-judaica.html)
+ 
 - Assine o Canal, toque o sininho, volte sempre :)
  
 - VRFdS
