@@ -216,7 +216,7 @@ plural, no contexto do V.T.),
 
 - Leiam a resposta de Deus a **Jó**, no **capítulo 38**, para entenderem...
 
-- **Como Adão poderia ter existido antes dele mesmo, e, ao mesmo tempo, ter sido criado outra vez por Deus e colocado no Jardim do Éden para cuidar dele?**)
+- **Como Adão poderia ter existido antes dele mesmo, e, ao mesmo tempo, ter sido criado outra vez por Deus e colocado no Jardim do Éden para cuidar dele?**
 
 - Esse era o **tipo de resposta que Jesus dava aos seus inimigos** e que dava nó no
 cérebro deles:
