@@ -170,7 +170,7 @@ filho de Deus é derivado do versículo 23 (filho de José - και αυτος �
 
 - O original fala: " **e Adão de Deus** "
 
-- **Quarto ponto um** :), Outro problema desse tipo de interpretação é que
+- **Quatro ponto um** :), Outro problema desse tipo de interpretação é que
 incorre em outro tipo de **raciocínio falacioso** chamado de **Generalização**, ou seja:
 
 - Pega-se um versículo, ou texto bíblico (normalmente isolados), ou qualquer caso em particular, e, a partir dele,
