@@ -204,8 +204,8 @@ formosas; e tomaram para si mulheres de todas as que escolheram
 - **Quinto**, a própria Bíblia testemunha que haviam gigantes depois do Dilúvio e em
 todas as tribos dos Cananeus, a Bíblia mostra passagens claras a respeito desse fato...
 
-- *Se haviam gigantes pós-dilúvio, o que impede de terem existido antes do
-dilúvio*...  
+- *Se haviam gigantes pós-dilúvianos, o que impede de terem existido antes do
+dilúvio*?  
 
 - E se eram descendentes de Adão, via Sete, e, portanto filhos de Deus, *porque o Senhor resolveu exterminar aquela população já que eram Seus próprios filhos*?
 
