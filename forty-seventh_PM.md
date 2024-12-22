@@ -148,6 +148,8 @@ Messias prometido no V.T. é Mateus**...
 - Em **lógica filosófica** tais tipos de comparações absurdas são chamadas de:"**Non
 Sequitur**", em **Latin**, "*Não Segue*"
 
+- [Non sequitur](https://pt.wikipedia.org/wiki/Non_sequitur)
+
 - Seria o mesmo que fazer esse tipo de comparação:
 
 - "*Na fórmula 1 os carros alcançam mais de 350 Kh, mas um avião que cruza
@@ -167,6 +169,37 @@ filho de Deus é derivado do versículo 23 (filho de José - και αυτος �
 - mas, no versículo 38, **não fala**, **no original** (Textus Receptus), Adão "filho" de Deus (του ενως του σηθ του **αδαμ του θεου**), mas subentende-se por causa do versículo 23
 
 - O original fala: " **e Adão de Deus** "
+
+- **Quarto ponto um** :), Outro problema desse tipo de interpretação é que
+incorre em outro tipo de **raciocínio falacioso** chamado de **Generalização**, ou seja:
+
+- Pega-se um versículo, ou texto bíblico (normalmente isolados), ou qualquer caso em particular, e, a partir dele,
+chega-se a uma **conclusão rápida e universal**
+
+- *ex.:1* Raciocínio falacioso (Generalização)
+- Lucas escreveu que Adão era "filho" de Deus
+- Os **anjos** no, V.T, são chamados de **filhos de Deus**, 
+- logo: *Adão era um anjo*.
+ 
+- LOL 
+
+- *ex.:2* Raciocínio falacioso (Generalização)
+- *Lucas escreveu que Adão era "filho" de Deus*
+- Genesis (6.1-2) diz que *os filhos de Deus* viram que as filhas dos homens eram
+formosas; e tomaram para si mulheres de todas as que escolheram
+- Logo, *os filhos de Deus eram homens*, e não anjos
+
+- *ex.:3* Raciocínio falacioso (Generalização)
+- Esse produto foi feito na China...
+- Logo, é um lixo...
+ 
+- *ex.:4* Raciocínio falacioso (Generalização)
+- Ele é negro e vive em um favela...
+- Logo, ele é um ladrão...
+
+- *ex.5* Raciocínio falacioso (Generalização)
+- Ele é árabe e barbudo...
+- Logo, é muçulmano e terrorista...
 
 - **Quinto**, a própria Bíblia testemunha que haviam gigantes depois do Dilúvio e em
 todas as tribos dos Cananeus, a Bíblia mostra passagens claras a respeito desse fato...
