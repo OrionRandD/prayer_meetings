@@ -144,12 +144,12 @@ Messias prometido no V.T. é Mateus**...
 3.23 e Lucas 3.38 dentro desse contexto é forçar uma interpretação absurda e tal paralelo* "**Não Segue**"
 
 - Seria como dizemos na linguagem popular: "**Comparar alhos com bugalhos**"
-- 
+
 - Em **lógica filosófica** tais tipos de comparações absurdas são chamadas de:"**Non
 Sequitur**", em **Latin**, "*Não Segue*"
 
 - Seria o mesmo que fazer esse tipo de comparação:
-- 
+
 - "*Na fórmula 1 os carros alcançam mais de 350 Kh, mas um avião que cruza
 continentes chega a mais de 900 Kh!*". Etc...
 
@@ -157,6 +157,9 @@ continentes chega a mais de 900 Kh!*". Etc...
 
 - **Quarto**, o Velho Testamento usa **o termo Filhos de Deus** (no **plural**) para **os
 anjos** e não para homens, mesmo sendo da linhagem de Sete...
+
+- Genesis 6:1: ויהי כי־החל ה͏אדם לרב על־פני ה͏אדמה ובנות ילדו להם׃
+- Genesis 6:2: ויראו **בני־האלהים** את־בנות האדם כי טבת הנה ויקחו להם נשׁים מכל אשׁר בחרו׃ (WLC)
 
 - E o *texto de Lucas usa o termo no Singular* e, de forma subentendida, pois,
 filho de Deus é derivado do versículo 23 (filho de José - και αυτος ην ο ιησους ωσει ετων τριακοντα αρχομενος ων ως ενομιζετο **υιος ιωσηφ** του ηλι)
@@ -190,7 +193,7 @@ Telegram**: *Sérgio Saccani; BBC sobre terceira guerra mundial*, et. al.
 - E fez a seguinte pergunta: **Qual a opinião de vocês sobre o Trump, guerras e o
 Fim dos Tempos**?
 
-- Dissemos que, de fato, Trump tem poder para instituir o que tem prometido: *a
+- **Resposta**: Dissemos que, de fato, Trump tem poder para instituir o que tem prometido: *a
 Paz entre as nações que estão em guerra*...
 
 - Contudo, *devemos esperar para ver o desenrolar dos acontecimentos e observar,
@@ -205,10 +208,11 @@ cujo principal endereço dos seus negócios tem o número 666 (e aí o povo come
 quebra-cabeça profético* que todos os dias se desvenda diante dos nossos olhos **e estudar a Palavra com afinco, em oração**, à medida que os dias vão passando e o "**relógio do apocalipse (fim do mundo)** " está marcando** *menos de 99* segundos nesse momento...
 - [Relógio do Juízo Final](https://pt.wikipedia.org/wiki/Rel%C3%B3gio_do_Ju%C3%ADzo_Final)
 - Pesquisem sobre esse relógio criando por cientistas...
+ 
 - **La** fez uma pergunta relacionada com a da **K**, acerca **de como podemos ser
 não enganados com tanto volume de informações e muitas vozes dissonantes**, sobretudo na *internet e mídias sociais*, que **nos violentam** quase todos os dias...
 
-- A fórmula é simples: **sempre partir da Palavra para os acontecimentos** (que quando passam por esses **filtros** - *internet, rádio, TV, mídias socias* - *deixam de ser fatos e se transformam em Narrativas, propagandas, "fake News"*, etc. Pois: a **História** *nunca é dada*, ou seja, *nunca chega a nós como de fato é ou aconteceu*...
+- **Resposta**: A fórmula é simples: **sempre partir da Palavra para os acontecimentos** (que quando passam por esses **filtros** - *internet, rádio, TV, mídias socias* - *deixam de ser fatos e se transformam em Narrativas, propagandas, "fake News"*, etc. Pois: a **História** *nunca é dada*, ou seja, *nunca chega a nós como de fato é ou aconteceu*...
 
 - Mas, *chega através da interpretação de alguém, de grupos, de instituições, de
 acadêmicos corrompidos e corruptos* e etc...
