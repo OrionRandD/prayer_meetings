@@ -216,7 +216,17 @@ plural, no contexto do V.T.),
 
 - Leiam a resposta de Deus a **Jó**, no **capítulo 38**, para entenderem...
 
-- **Como Adão poderia ter existido antes de Adão, e ele mesmo, ter sido criado no Jardim do Éden por Deus?**)
+- **Como Adão poderia ter existido antes dele mesmo, e, ao mesmo tempo, ter sido criado outra vez por Deus e colocado no Jardim do Éden para cuidar dele?**)
+
+- Esse era o **tipo de resposta que Jesus dava aos seus inimigos** e que dava nó no
+cérebro deles:
+
+-  Mark 12:35: Por sua vez, Jesus, enquanto ensinava no templo, perguntou: Como é que os escribas dizem que o Cristo é filho de Davi?
+- Mark 12:36: O próprio Davi falou, movido pelo Espírito Santo: Disse o Senhor ao meu Senhor: Assenta-te à minha direita, até que eu ponha os teus inimigos debaixo dos teus pés.
+- Mark 12:37: Davi mesmo lhe chama Senhor; como é ele seu filho? E a grande multidão o ouvia com prazer. (PorRecebida)
+
+- Psalms 110:1: Disse o Senhor ao meu Senhor: Assenta-te à minha direita, até que eu ponha os teus inimigos por escabelo dos teus pés.
+(PorRecebida)
 
 - etc...
 
