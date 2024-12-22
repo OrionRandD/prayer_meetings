@@ -155,7 +155,7 @@ continentes chega a mais de 900 Kh!*". Etc...
 
 - Ou seja: a comparação "*Não segue*". Está totalmente fora de contexto
 
-- **Quarto**, o Velho Testamento usa **o termo Filhos de Deus** (no **plural**) para **os
+- **Quarto**, o Velho Testamento usa **o termo Filhos de Deus - ben-Elohim** (no **plural**) para **os
 anjos** e não para homens, mesmo sendo da linhagem de Sete...
 
 - Genesis 6:1: ויהי כי־החל ה͏אדם לרב על־פני ה͏אדמה ובנות ילדו להם׃
