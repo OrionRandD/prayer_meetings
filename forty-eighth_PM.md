@@ -4,12 +4,6 @@
 
 ## description:
 
-**obs**.: Esse resumo é sobre a ROEB de sábado (ontem - sáb 21 dez 2024 16:15:00 -03) às 16:15h
- 
-Mas, a data e o horário que estou no domingo... 
- 
-Não pude fazê-lo ontem por que estava um pouco cansado e o calor estava me incomodando bastante...
-
 Essa é nossa quadragésima oitava reunião de oração e estudo bíblico de 2024.
 
 This is our forty-eight prayer meeting Bible session on 2024.
