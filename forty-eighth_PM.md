@@ -71,7 +71,7 @@ discernimento da parte de Deus
 distinta em relação as demais**... 
 
 - A Palavra nos fala de:
-- 
+
 - **Uma Fé geral** (crer ou acreditar)
 - Essa é o tipo de Fé que todos nós precisamos para viver...
 - Quando, por exemplo, vamos a um supermercado e dizemos: "vou ali e daqui a
@@ -136,13 +136,12 @@ pre encarnada no Antigo Testamento
 - Juízes 13:23: Sua mulher, porém, lhe respondeu: Se o Senhor nos quisera matar, não teria recebido da nossa mão o holocausto e a oferta de cereais, nem nos teria mostrado todas estas coisas, nem agora nos teria dito semelhantes coisas.
 - Juízes 13:24: Depois teve esta mulher um filho, a quem pôs o nome de Sansão; e o menino cresceu, e o Senhor o abençoou.
  
-
 - Isaías 9:6: Porque um menino nos nasceu, um filho se nos deu; e o governo estará sobre os seus ombros; e o seu nome será: **Maravilhoso** Conselheiro, Deus Forte, Pai Eterno, Príncipe da Paz.
 - Isaías 9:7: Do aumento do seu governo e da paz não haverá fim, sobre o trono de Davi e no seu reino, para o estabelecer e o fortificar em retidão e em justiça, desde agora e para sempre; o zelo do Senhor dos exércitos fará isso.
  
 - Como podemos afirmar que O Anjo do Senhor era a Segunda pessoa da Trindade pre encarnada? 
 
-- **Prestem atenção no nome dele acima**...
+- **Prestem atenção no Nome Dele acima**...
  
 - Esse é o único Anjo que aceita adoração de homens sem se opor e de forma
 legítima... 
@@ -211,7 +210,7 @@ tenta fazê-lo de forma forçada e despótica e artifícios de mentira e engano 
 inferno...
 - Tiago 2:19: Crês tu que Deus é um só? Fazes bem; os demônios também o creem, e estremecem.
  
-- *Uma Fé como dom* do Espírito Santo
+- **Uma Fé como dom** do Espírito Santo
 -  Gálatas 5:22: Mas o fruto do Espírito é: o amor, a alegria, a paz, a longanimidade, a benignidade, a bondade, a fé (...)
 - Que também é uma fé que não se origina em nós mesmos, mas é uma fé
 sobrenatural que tanto pode nos livrar, fortalecer (etc.) em momentos e situações críticas que atravessamos ou como fé que produz cura física  
@@ -220,7 +219,7 @@ sobrenatural que tanto pode nos livrar, fortalecer (etc.) em momentos e situaç�
 - Mateus 9:21: porque dizia consigo mesma: Se eu apenas lhe tocar a veste, ficarei curada.
 - Mateus 9:22: Mas Jesus, voltando-se e vendo-a, disse: Filha, tem bom ânimo; a tua fé te curou. E desde aquela hora a mulher ficou curada.
 
-- Fé para a Salvação (a Fé não é de todos)
+- **Fé para a Salvação** (*a Fé não é de todos*)
 - Essa Fé, além de ser dom de Deus, é uma Fé sobrenatural que somente o Espírito
 Santo pode nos dar
 - Ela é dom de Deus e sua principal função é fazer que acreditemos que Jesus é o
