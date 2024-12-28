@@ -71,7 +71,7 @@ discernimento da parte de Deus
 distinta em relação as demais**... 
 
 - A Palavra nos fala de:
-
+ 
 - **Uma Fé geral** (crer ou acreditar)
 - Essa é o tipo de Fé que todos nós precisamos para viver...
 - Quando, por exemplo, vamos a um supermercado e dizemos: "vou ali e daqui a
