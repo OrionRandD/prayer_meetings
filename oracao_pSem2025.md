@@ -6,6 +6,12 @@
 
 #### «.orac_1sem»	(to "orac_1sem")
 
+- Em primeiro lugar:
+- Feliz 2025 para todos vocês! 
+- Se chegamos até aqui é porque o Senhor ainda tem 
+- projetos conosco para esse ano!
+- Então, continuemos seguindo-o e atento à voz dEle... 
+
 - Versículos bíblicos
 
 - Salmos 119:50: Isto é a minha consolação na minha angústia, que a tua promessa me vivifica.
