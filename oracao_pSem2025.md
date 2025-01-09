@@ -1,14 +1,10 @@
 
 ### Oração
 
-;;;;
-;;
-;; orac_1sem
-;; 2025jan08
-;;
-;;;;
+#### orac_1sem
+#### 2025jan08
 
-;; «.orac_1sem»	(to "orac_1sem")
+#### «.orac_1sem»	(to "orac_1sem")
 
 - Versículos bíblicos
 
@@ -28,6 +24,8 @@
 - An. Mar. - colega L.
 - Trabalho entregue à MAl
 
+#### «orac_1sem»  (to ".orac_1sem")
+
 - Pedidos
 - Direcionamento, transição, trabalho (K.)
 - Mãe da L. (renovar saúde física e emocional)
@@ -40,6 +38,4 @@
 - Limpar a igreja (e Instituições Cristãs) dos líderes corruptos
 - Guerra no Oriente Médio (bebês morrendo congelados)
 - Dirc. e Ton.... (provisão e suprimento da parte de Deus)
-
-;; «orac_1sem»  (to ".orac_1sem")
 
