@@ -106,7 +106,7 @@ sobretudo os anjos e os homens...
 - Ele, por causa do Seu imenso amor, foi Aquele que foi buscar o homem depois
 deste desobedecê-lo mesmo diante de todas as bênçãos imerecidas que lhe foram
 presenteadas pelo Senhor... 
-- Ele foi aquele que buscou um homem e desse fez surgir uma nação para ser luz
+- Ele foi Aquele que buscou um homem e desse fez surgir uma nação para ser luz
 entre as nações que viviam no pecado e nas mais densas trevas da destruição, do
 pecado e da morte...
 - Na realidade, tudo pertence ao Senhor, toda a Sua criação: 
@@ -121,7 +121,7 @@ misericordioso!
 - No próximo sábado, se o Senhor permitir, veremos porque tal livro foi (e é) tão visado
 e atacado por inimigos visíveis e invisíveis ao longo da história humana...
 
-- Estiveram presente nessa reunião (La., Dal., B., K., Wa., Le., e V)
+- Estiveram nessa reunião (La., Dal., B., K., Wa., Le., e V)
 - Wa. foi convidada de B., e foi muito bom tê-la entre nós... esperamos, de
 coração, "vê-la" outras vezes...
 - Dey. não pode estar conosco, mas não esqueçamos de apresentá-la diante do
