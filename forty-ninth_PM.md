@@ -4,15 +4,15 @@
 
 ## description:
 
-Essa é nossa quadragésima nona reunião de oração e estudo bíblico de 2024.
+Essa é nossa quadragésima nona reunião de oração e estudo bíblico
 
-This is our forty-ninth prayer meeting Bible session on 2024.
+This is our forty-ninth prayer meeting Bible session
 
 ## begin_preview
 
-Quadragésima nona reunião de oração e estudo bíblico de 2024
+Quadragésima nona reunião de oração e estudo bíblico
 
-Forty-ninth prayer meeting and Bible study of 2024
+Forty-ninth prayer meeting and Bible study
 
 ## begin_preview
 
