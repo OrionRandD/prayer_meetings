@@ -58,12 +58,12 @@ Forty-ninth prayer meeting and Bible study
 - Estudo Bíblico
  
 - Hoje, começamos estudar o livro de Gênesis...
-- Investimos alguns meses, no ano passado, pesquisando e investindo numa
-- melhor compressão do de todo o Antigo Testamento até o período inter bíblico 
-- Vimos o plano geral de Deus desde Gênesis até Malaquias, incluindo alguns 
-- livros apócrifos e a importância deles para uma melhor entendimento do Novo
+- Investimos alguns meses, no ano passado, pesquisando, conversando e discutindo no intuito de
+- melhor compreendermos todo o Antigo Testamento desde Gênesis até o período inter bíblico...
+- Vimos o plano geral de Deus desde até Malaquias, incluindo alguns 
+- livros apócrifos (e.g. I e II Macabeus) e a importância deles para um melhor entendimento do Novo
 Testamento
-- Acreditamos que valeu muito a pena investir tempo e esforço para entender
+- Acreditamos que valeu muito a pena todo o tempo e esforço para entender
 melhor a preciosa Palavra do Senhor...
 
 - Tradicionalmente, o livro de Gênesis é conhecido como o Livro dos Começos...
