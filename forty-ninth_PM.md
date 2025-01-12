@@ -74,7 +74,7 @@ melhor a preciosa Palavra do Senhor...
 - Pois, é ali que vemos o começo de todas as coisas:
 - O começo do Universo físico (dos astros, da luz, das águas, da terra, das árvores, dos
 animais e do ser humano, do pecado, da maldição do pecado, de uma nação
-escolhida para ser luz entre os gentios) 
+escolhida para ser luz entre os gentios, etc...) 
 - Portanto, verdadeiramente, sem tal livro, especialmente os três primeiros
 capítulos, o restante da Bíblia seria como se andássemos sem direção em no meio
 de uma densa floresta durante uma noite sem lua e estrelas...
