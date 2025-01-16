@@ -36,3 +36,6 @@
 
 - Música 
 - [Portas] (https://www.letras.com/josue-rodrigues/1227466/)
+
+- Abraços em todos e boa semana...
+- Nos vemos no sábado, se o Senhor permitir...
