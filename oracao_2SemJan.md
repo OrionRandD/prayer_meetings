@@ -32,5 +32,7 @@
 - Família (Dec.; La; seu Dem.)
 - Agradecimento pela chuva...
 
+- Testemunho (Le. - de resposta da parte de Deus)
+
 - Música 
 - [Portas] (https://www.letras.com/josue-rodrigues/1227466/)
