@@ -89,7 +89,6 @@ Gênesis 1:1: No princípio criou Deus os céus e a terra.
 - E uma espécie de Recriação. A (do versículo dois)
 
 - Gênesis 1:2: E a terra estava sem forma e vazia; e havia trevas sobre a face do abismo, e o Espírito de Deus pairava sobre a face das águas.
-- 
 - Mas, por que?
 - Porque sendo Deus um ser perfeito e inteligente, seria contraditório
 Ele criar alguma coisa desorganizada (sem forma e vazia - um
