@@ -23,6 +23,14 @@ sociedades secretas)) tentaram e tentam impedir que o plano da salvação (Genes
 cabeça (uma ferida mortal) através da Sua ressurreição (o venceu e tomou das
 mãos dele as chaves da morte e do inferno)...
 
+- Diga-se de passagem, que o diabo não tinha a mínima suspeita que
+  o Senhor ressuscitaria logo após ser crucificado e morto
+- Por isso, satanás estava sempre incitando os líderes religiosos e
+  políticos (e, por fim também o povo) a
+  matar o Senhor, usando vários artifícios (os mais sagazes possíveis)
+- Dessa forma, a ressurreição de Cristo foi um golpe mortal ("este te
+  ferirá a cabeça") na cabeça da serpente (Satanás) => "Yay"! :)
+  
 - Pergunta Le. (sobre a semana do La. e a oportunidade que o
   Senhor lhe deu)
 - Comum é diferente de normal
