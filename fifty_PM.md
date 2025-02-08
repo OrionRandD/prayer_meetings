@@ -102,7 +102,7 @@ Gênesis 1:1: No princípio criou Deus os céus e a terra.
 Ele criar alguma coisa desorganizada (sem forma e vazia - um
 verdadeiro Caos)...
 - E, além disso, o verbo "estava" (estava sem forma e vazia) desse
-- versículo é a palavra (Barah, em Hebraico, que significa "veio a ser
+- versículo é a palavra (Haitah , em Hebraico, que significa "veio a ser
 - ou tornou-se" sem forma e vazia)
 - Daí, se conclui que 
 deve ter acontecido algo de proporções catastróficas nesse período
