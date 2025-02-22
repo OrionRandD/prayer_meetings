@@ -39,7 +39,7 @@
 
 - Filha do Pr. (Karol. (bactéria); filha do pr. (cirugia criança)
 
-- Pela Vanessa
+- Pela Van.
 
 - Pela Polícia Federal (justiça seja feita em relação ao ex-presidente
   e envolvidos)
