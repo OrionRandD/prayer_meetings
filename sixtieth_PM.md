@@ -110,6 +110,7 @@ acreditam na Trindade...)
   livro de Gênesis
 - Para que sempre possamos:
 - "responder com mansidão e temor a todo aquele que vos pedir a razão da esperança que há em vós"
+ 
 - I Peter 3:15: antes santificai o Senhor Deus em vossos corações; e estai sempre preparados para responder com mansidão e temor a todo aquele que vos pedir a razão da esperança que há em vós (PorAR)
 
 - Achamos de suma importância, dessa forma, esclarecer esse assunto tão
