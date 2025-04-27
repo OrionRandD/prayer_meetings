@@ -1,9 +1,5 @@
-;; convert it to
-;; sixtieth_third_PM.md
-
 # roeb_63
 # 2025apr19
-
 
 - Conversa informal
 - Chuva; trabalho
