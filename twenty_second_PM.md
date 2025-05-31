@@ -31,7 +31,7 @@ Twentieth second prayer meeting and Bible study of 2024
 - Le (agradecimento pela consulta médica) 
 
 - Pedidos
-- D. Leo (está se recuperando bem, mas necessita ver o médico...)
+- D. Leo. (está se recuperando bem, mas necessita ver o médico...)
 - Seu Dem. (e as filhas que estão cuidando dele); orar pela saúde emocional
 - Oração pela família de K (falecimento do pai) - Crianças e adolescentes na Faixa de Gaza (estão morrendo de fome); Crianças em Bangladesh (enchentes) 
 - Pelo RS e o período de chuvas e enchentes
