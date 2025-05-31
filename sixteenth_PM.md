@@ -28,19 +28,19 @@ Sixteenth prayer meeting and Bible study of 2024
 
 - Começamos nossa reunião com um conversa descontraída a respeito de
   alguns livros que os membros do grupo estão lendo...
-- A Le indicou um livro para Ka (Virginia M. Axline - Dibs: Em Busca
+- A Le. indicou um livro para Ka (Virginia M. Axline - Dibs: Em Busca
   de Si Mesmo)
-  - La falou um pouco sobre o livro "Fator Melquisedec" também.
+  - La. falou um pouco sobre o livro "Fator Melquisedec" também.
 - Depois V assumiu a parte das orações:
 - Agradecimentos
-- Dec (se recuperando)
-- Sr. Dem - melhoras como respostas de oração
-- D. Leos - cirurgia foi OK....
+- Dec. (se recuperando)
+- Sr. Dem. - melhoras como respostas de oração
+- D. Leos. - cirurgia foi OK....
 
 - Pedidos
-- Sr. Demerval
-- D. Leos (recuperação - ainda não teve alta) e Est
-- D. Dal (não tá muito bem hoje)
+- Sr. Dem.
+- D. Leos. (recuperação - ainda não teve alta) e Est
+- D. Dal. (não tá muito bem hoje)
 - Ameaça de enchente em Rio do Sul, de novo (Líg)
 - Rio grande do Sul
 - Cuidado ao falar e comentar sobre situações polêmicas
@@ -96,4 +96,3 @@ Sixteenth prayer meeting and Bible study of 2024
 
 - VRFdS
 - Sat May 18 07:54:22 PM -03 2024
-
