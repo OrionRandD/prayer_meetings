@@ -62,8 +62,7 @@ Twentieth fourth prayer meeting and Bible study of 2024
   e Salvador das nossas vidas
 - Hebreus 13:8-16 
 - O mais importante de tudo em relação ao movimento de Retorno para
-  Israel, que é um modismo hoje dentro de muitas igrejas no Brasil, é
-  que, acima de tudo, somos de Jesus Cristo.
+- Israel, que é um modismo hoje dentro de muitas igrejas no Brasil, é que, acima de tudo, somos de Jesus Cristo.
 - Somos filhos de Deus pela fé...
 - Le contou a hist. da YC... (nossa primeira filha na fé)
 - Encontramos um grupo na Inglaterra que já havia 
