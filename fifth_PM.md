@@ -66,7 +66,6 @@ partilhando Tua dor.
 
 ### end_verse
 
-
 - Ao que parece, mais uma vez, tivemos um bom aproveitamento...
 
 - E o mais importante é que fomos alimentados com a Palavra de Deus para enfrentar as lutas do dia a dia ao lado do nosso Senhor Jesus Cristo...
