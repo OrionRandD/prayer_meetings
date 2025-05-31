@@ -27,7 +27,7 @@ Twentieth first prayer meeting and Bible study of 2024
 ## Dar seguimento(...)
 
 - Agradecimentos
-- D. Leo, d. Gr., seu Od., pai (Man.) e seu Dem.
+- D. Leo., d. Gr., seu Od., pai (Man.) e seu Dem.
 
 - Pedidos de oração
 - Dec teve alta
