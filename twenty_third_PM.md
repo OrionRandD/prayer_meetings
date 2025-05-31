@@ -45,7 +45,9 @@ Pedidos:
 - Igrejas cristãs árabes 
 
 - Video da Aline: aqui ela "acerta em cheio" nessa crítica.
+
 - [Cristãos que querem ser judeus messiânicos ] (https://www.youtube.com/watch?v=wq94Hgnr09Q)
+
 - Contudo, é bom usar um filtro na narrativa oficial (heroica) que ela prega, defende e ensina no canal do YT dela...
 
 - Pois, quem tem Jesus não precisa voltar ao judaísmo (Gálatas 3)
