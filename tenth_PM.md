@@ -28,7 +28,6 @@ tenth prayer 2024 prayer meeting and Bible study
 
 - Começamos a reunião com um pouco de tempo de folga e pudemos conversar mais informalmente... 
 - Depois a Le sugeriu que orássemos pela situação dos povos e de alguns países em especial, baseada nos versículos:
-
 - Revelation of John 5:5: E disse-me um dentre os anciãos: Não chores; eis que o Leão da tribo de Judá, a raiz de Davi, venceu para abrir o livro e romper os sete selos.
 - Revelation of John 5:6: Nisto vi, entre o trono e os quatro seres viventes, no meio dos anciãos, um Cordeiro em pé, como havendo sido morto, e tinha sete chifres e sete olhos, que são os sete espíritos de Deus, enviados por toda a terra.
 - Revelation of John 5:7: E veio e tomou o livro da destra do que estava assentado sobre o trono.
