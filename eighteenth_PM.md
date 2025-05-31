@@ -15,7 +15,7 @@ Eighteenth prayer 2024 prayer meeting and Bible study
 
 ## end_preview
 
-# Sétima reunião de oração
+# Décima oitava reunião de oração
 - Prayer meeting
 
 ## Bem vindo!
@@ -109,5 +109,3 @@ secretas (e.g. Maçonaria).
 - VRFdS
 
 - Sat May 25 06:10:03 PM -03 2024
-
-;;;;;;;;;;;;;;;;;;;;;;;;;;
