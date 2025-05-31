@@ -67,6 +67,7 @@ Twentieth eighth prayer meeting and Bible study of 2024
 
 - Sugestão de vídeo:
 - Um testemunho de dois jóvens sobre uma experiência que tiveram recentemente com o Senhor:
+
 - [El Fin Está Cerca, Dos Jóvenes Viven una Experiencia Sobrenatural](https://www.youtube.com/watch?v=1-nZKlTYEBg&t=679s)
 
 - Estiveram presentes nessa reunião: (La, Dey, K, Bra, V, e Le)
