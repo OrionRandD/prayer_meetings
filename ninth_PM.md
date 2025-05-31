@@ -89,7 +89,8 @@ ninth prayer 2024 prayer meeting and Bible study
 - Depois partimos para o estudo bíblico.
 - Aprendemos que Jesus tinha discípulos secretos também. E os motivos pelo qual se relacionavam com o Mestre dessa forma...
 - Além dos doze e de um grupo seleto de mulheres que O seguia publicamente.
-- Aprendemos sobre o Sinédrio Judeu; os fariseus; saduceus; religião; política (e os respectivos partidos políticos e ideologias vigentes na época de Cristo e como o Senhor se relacionava com tudo isso).
+- Aprendemos sobre o Sinédrio Judeu; os fariseus; saduceus; religião; 
+- política (e os respectivos partidos políticos e ideologias vigentes na época de Cristo e como o Senhor se relacionava com tudo isso).
 - Procuramos entender a posição de Jesus se ele estivesse entre nós, nossas igrejas e famílias em relação à politica vigente no nosso país e os partidos de oposição...
 - Discutimos também a crucificação e morte de Cristo em termos de horários naquela sexta-feira
 - Jesus foi crucificado que horas; que hora do dia ele morreu?
