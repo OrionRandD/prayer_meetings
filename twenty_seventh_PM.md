@@ -57,7 +57,9 @@ Twentieth seventh prayer meeting and Bible study of 2024
 - [Armaggedon - Israel](https://www.youtube.com/watch?v=TlOXPJrcwwU&t=103)
 - [Batalha do Armagedon](https://www.gotquestions.org/Portugues/batalha-do-Armagedom.html)
 
-- Entendemos que o Oriente Médio; Israel; a região da Galiléia e a cidade de Cafarnaum foram escolhidas pelo Senhor com o propósito daquele lugar, e, em especial, Seu povo servir de luz para as nações (gentios)
+- Entendemos que o Oriente Médio; Israel; a região da Galiléia e a
+  cidade de Cafarnaum foram escolhidas pelo 
+- Senhor com o propósito daquele lugar, e, em especial, Seu povo servir de luz para as nações (gentios)
 
 - Isaías 9:1: Mas para a que estava aflita não haverá escuridão. Nos primeiros tempos, ele envileceu a terra de Zebulom, e a terra de Naftali; mas nos últimos tempos fará glorioso o caminho do mar, além do Jordão, a Galiléia dos gentios.
 - Isaías 9:2: O povo que andava em trevas viu uma grande luz; e sobre os que habitavam na terra de profunda escuridão resplandeceu a luz.
