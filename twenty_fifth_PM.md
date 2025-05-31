@@ -1,4 +1,3 @@
-
 ## title: Twenty fifth PM
 ## Sat Jul 20 04:30:00 PM -03 2024
 
@@ -84,8 +83,6 @@ Twentieth fifth prayer meeting and Bible study of 2024
 - segunda Timóteo 3:15: e que desde a infância sabes as sagradas letras, que podem fazer-te sábio para a salvação, pela que há em Cristo Jesus.
 - segunda Timóteo 3:16: Toda Escritura é divinamente inspirada e proveitosa para ensinar, para repreender, para corrigir, para instruir em justiça;
 - segunda Timóteo 3:17: para que o homem de Deus seja perfeito, e perfeitamente preparado para toda boa obra.
-
- - ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 
 - Vimos que Paulo deu duas tarefas especiais para os dois jovens discípulos que eram "fiéis escudeiros" dele.
 - Um era judeu e o outra era gentio.
