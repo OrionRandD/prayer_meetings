@@ -58,7 +58,9 @@ eleventh prayer 2024 prayer meeting and Bible study
 
 - Depois das orações, começamos o estudo bíblico. Mas, antes relembrei que por causa da ausência de duas pessoas no encontro anterior, resolvemos falar um pouco sobre o tema Israel, já que esse é um assunto recorrente no meio das igrejas e da sociedade de forma geral.
 
-- Daí o motivo de termos iniciado um esclarecimento começando com o Israel antigo (o do V.T.), repassando história deles desde os primeiros capítulos da Bíblia até o último profeta: João Batista.
+- Daí o motivo de termos iniciado um esclarecimento começando com o
+ Israel antigo (o do V.T.),
+- repassando história deles desde os primeiros capítulos da Bíblia até o último profeta: João Batista.
 - E falamos que em tempo oportuno iremos lidar com o tema: o Israel Moderno e implicações na vida dos cristãos modernos...
 
 - Enfim, retomamos o estudo bíblico de onde havíamos parado e estudamos alguns detalhes da personagem bíblica em foco, tentando entender melhor o quebra-cabeças da história da paixão, morte e ressurreição de Cristo.
