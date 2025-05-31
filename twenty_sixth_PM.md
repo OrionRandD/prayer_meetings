@@ -68,7 +68,8 @@ Twentieth sixth prayer meeting and Bible study of 2024
 - Depois, o Senhor se revela a Moisés, no outro extremo (esquerdo ou oriental) do Fértil
 - Transforma Moisés em libertador do povo dele sob o jugo dos Egípcios e na peregrinação do seu povo até a terra que prometera a Abraão, anos antes, continua se revelando ao povo dele de forma paulatina e histórica através dos eventos da peregrinação no deserto do Sinai 
 - Durante todo esse período, além do Senhor se revelar como o Deus que salva, cura, peleja a favor dos seus e realiza grandes milagres a Palavra de Deus (a Bíblia) vai sendo escrita pelas mãos de legisladores, guerreiros, reis, profetas e sacerdotes 
-- Portanto, para que entendamos os livros do V.T., começando com Gênesis, é necessário ter esses pré-requisitos em mente para podermos compreender melhor o nosso Deus, Seu caráter, Suas Leis, Seu amor, misericórdia e justiça nos céus e na terra
+- Portanto, para que entendamos os livros do V.T., começando com Gênesis, é necessário ter esses 
+- pré-requisitos em mente para podermos compreender melhor o nosso Deus, Seu caráter, Suas Leis, Seu amor, misericórdia e justiça nos céus e na terra
 - Temos uma jornada a percorrer enquanto o Senhor permitir que estejamos juntos em torno dEle e da Sua santa Palavra.
 
 - Que o Senhor abençoe e fortifique a todos nós que estaremos caminhando ao lado do nosso Senhor e Rei..
