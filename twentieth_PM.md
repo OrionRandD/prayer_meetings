@@ -65,7 +65,9 @@ Twentieth prayer meeting and Bible study of 2024
 
 - [Datas importantes do Israel Moderno](https://gizmodo.uol.com.br/guerra-em-israel-este-mapa-mostra-evolucao-dos-conflitos-no-oriente-medio/)
 
-- Paulo, apóstolo, era um judeu fundamentalista que se converteu a Cristo; depois da sua conversão, os crentes judeus (judaizantes - que acreditavam que Jesus não era suficiente para salvar e que era necessário o acréscimo da Lei de Moisés para a salvação) - Livro de Gálatas.
+- Paulo, apóstolo, era um judeu fundamentalista que se converteu a
+Cristo; depois da sua conversão, os crentes judeus 
+- (judaizantes - que acreditavam que Jesus não era suficiente para salvar e que era necessário o acréscimo da Lei de Moisés para a salvação) - Livro de Gálatas.
 
 - Continua no próximo sábado (...)
 - Todos participaram...
