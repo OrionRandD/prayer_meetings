@@ -95,7 +95,9 @@ Eleventh prayer 2024 prayer meeting and Bible study
 
 ### end_verse
 
-- Situando o contexto histórico daquele povo (inclusive muitos de nós, mesmo sem sabermos, no Brasil, somos descendentes dele(s) - judeus, árabes) no tempos de outrora, será possível entender o Israel dos nossos dias. 
+- Situando o contexto histórico daquele povo (inclusive muitos de nós,
+ mesmo sem sabermos,
+- no Brasil, somos descendentes dele(s) - judeus, árabes) no tempos de outrora, será possível entender o Israel dos nossos dias. 
 - Dito: o Israel Moderno. Mas, isso é assunto para mais outra reunião...
 
 - Infelizmente, não conseguimos nem fazer a oração final juntos, pois a conexão com a internet estava pra lá de péssima de ambos os lados.
