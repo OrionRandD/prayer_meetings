@@ -15,7 +15,7 @@ Twentieth ninth prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-## Vigésima oitava reunião de oração
+## Vigésima nona reunião de oração
 
 - Prayer meeting
 
@@ -52,7 +52,6 @@ Twentieth ninth prayer meeting and Bible study of 2024
 - Houve vários, contudo, nesse caso, a leitura gira em torno de um dos
 - que não escreveram suas próprias profecias (Elias, Eliseu,
   Micaías...). Chamados de não literários. 
-
 
 - Estiveram presentes nessa reunião: (La, Dey, K, Bra, V, e Le)
 
