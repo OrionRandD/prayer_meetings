@@ -38,7 +38,8 @@ sixth prayer 2024 prayer meeting and Bible study
 - Descobrimos muitas verdades juntos...
 - Houve, mais uma vez, bastante participação do grupo.
 
-- Ouvimos uma música que corrobora os aspectos que iriamos abordar no estudo bíblico e no que seria discutido.
+- Ouvimos uma música que corrobora os aspectos que iriamos abordar
+- no estudo bíblico e no que seria discutido.
 
 - [Quão Grande é O Senhor](https://www.youtube.com/watch?v=sWSKtoURGAg)
 
