@@ -1,4 +1,4 @@
-## title: Forty-seventh PM
+## title: Fortieth-seventh PM
 
 ## dom 22 dez 2024 05:50:55 -03
 
@@ -22,7 +22,7 @@ Forty-seventh prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-### Forty-seventh reunião de oração
+### Fortieth-seventh reunião de oração
 
 - Prayer meeting
 
