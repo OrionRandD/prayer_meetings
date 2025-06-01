@@ -27,7 +27,7 @@ Thirty fifth prayer meeting and Bible study of 2024
 
 ## Dar seguimento(...)
 
-- Le leu:
+- Le. leu:
 
 - Salmos 90:1: Senhor, tu tens sido o nosso refúgio de geração em geração.
 - Salmos 90:2: Antes que nascessem os montes, ou que tivesses formado a terra e o mundo, sim, de eternidade a eternidade tu és Deus.
@@ -92,3 +92,4 @@ Thirty fifth prayer meeting and Bible study of 2024
 
 - sáb 28 set 2024 16:05:41 -03
 - VRFdS
+ 
