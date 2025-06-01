@@ -1,5 +1,6 @@
 # roeb_51
 # 2025jan25
+# Quinquagésima primeira roeb
 
 - Daniel 2:20: Disse Daniel: Seja bendito o nome de Deus para todo o sempre, porque são dele a sabedoria e a força.
 - Daniel 2:21: Ele muda os tempos e as estações; ele remove os reis e estabelece os reis; é ele quem dá a sabedoria aos sábios e o entendimento aos entendidos.
