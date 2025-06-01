@@ -1,5 +1,6 @@
 # roeb_67
 # 2025may17
+# sexagésima sétima roeb
 
 - Meditação (Le.)
 - Salmos 25:1: A ti, Senhor, elevo a minha alma.
