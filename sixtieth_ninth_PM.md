@@ -22,7 +22,7 @@
 - Estudo Bíblico
 - Livro de Gênesis (caps: 1, 2, 3; cont...)
 
-- Imago Dei  
+- Imago Dei 
 
 - Racionalidade
 - Consciência (Sopro de vida; Nefesh (alma)
@@ -52,6 +52,34 @@
 - porque o ProtonMail é um serviço excepcional 
 - [protonmail](https://proton.me/mail)
 
+- Obs.2:
+- Se alguém quiser usar o celular, ao invés de um PC ou Laptop,
+- por falta de opção (o Jitsi no PC ou Laptop é sempre melhor),
+- pode-se instalar o programa através do f-droid (nunca instale nenhum 
+- aplicativo através do Google-Store (somente em caso de falta de
+  opção. Use sempre a loja do f-Droid, pois o Google modifica todos os
+  aplicativos para espiar o que você faz na internet e colhe todos os
+  seus dados)
+
+- Para tanto, instale o f-Droid através do site abaixo, 
+- O Google provavelmente vai reclamar e dizer que o site não é
+  seguro...
+- e blá, blá, blá... É mentira. O problema é que ele quer monopolizar
+  os aplicativos do seu celular e, consequentemente, sua vida íntima...
+- Depois, abra o f-Droid e procure pelo Jitsi-meet e instale-o.
+- Se precisar instalar o Telegram o processo é o mesmo...
+
+- Jitsi para seu smartphone
+- instale o f-droid primeiro
+- faça o download o f-droid aqui:
+- https://f-droid.org/packages/org.jitsi.meet/
+
+- Contudo, a reunião também pode ser acessada através do Firefox 
+- no próprio celular. Mas o google também vai reclamar se tentar
+  instalar o Firefox. As razões foram citadas acima...
+- Mas, com o aplicativo do jitsi, a qualidade da reunião fica melhor e
+  depois o aplicativo também poderá ser usado para vocês contactarem
+  familiares, amigos, etc...
+
 - VRFdS
 - Sat May 31 06:33:28 PM -03 2025
-
