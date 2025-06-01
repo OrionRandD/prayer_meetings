@@ -1,5 +1,6 @@
 # roeb_62
 # 2025apr12
+# sexagésima segunda roeb
 
 - Le. (email que recebeu: a Igreja está sendo espremida...)
 
