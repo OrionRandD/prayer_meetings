@@ -1,4 +1,4 @@
-## title: Forty-eight PM
+## title: Fortieth-eight PM
 
 ## Sat Dec 28 06:20:47 PM -03 2024
 
@@ -16,7 +16,7 @@ Forty-eight prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-### Forty-eight reunião de oração
+### Fortieth-eight reunião de oração
 
 - Prayer meeting
 
