@@ -1,4 +1,4 @@
-## title: Forty-second PM
+## title: Fortieth second PM
 
 ## sáb 16 nov 2024 15:56:24 -03
 
@@ -16,7 +16,7 @@ Forty-second prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-## Forty-second reunião de oração
+## fortieth-second reunião de oração
 
 - Prayer meeting
 
@@ -67,3 +67,4 @@ Forty-second prayer meeting and Bible study of 2024
 
 - VRFdS
 - sáb 16 nov 2024 15:56:24 -03
+ 
