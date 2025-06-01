@@ -1,4 +1,4 @@
-## title: Forty-fourth PM
+## title: Fortieth-fourth PM
 
 ## Sat Nov 30 03:48:02 PM -03 2024
 
@@ -16,7 +16,7 @@ Forty-fourth prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-### Forty-fourth reunião de oração
+### Fortieth-fourth reunião de oração
 
 - Prayer meeting
 
