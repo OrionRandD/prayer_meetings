@@ -68,8 +68,9 @@ Fortieth prayer meeting and Bible study of 2024
 - Tenham uma semana abençoada...
 
 - Estiveram presente nessa reunião:
-- B, La, Dal, K, Le, V
+- B., La., Dal., K., Le., V.
 - Day não não pode estar, mas continuemos orando por ela... 
 
 - VRFdS
 - sáb 02 nov 2024 14:52:55 -03
+ 
