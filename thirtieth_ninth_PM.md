@@ -36,7 +36,7 @@ Thirty ninth prayer meeting and Bible study of 2024
 
 - Agradecimentos:
 - Pelo grupo que está trabalhando em algum lugar do OM 
-- Pela Kio, irmã da K. que pela filhinha que está chegando Reb.
+- Pela Kio., irmã da K. que pela filhinha que está chegando Reb.
 - Pelo grupo
 
 - Pedidos: 
@@ -107,3 +107,4 @@ mas por intervenção divina por causa do pecado do povo...
 
 - VRFdS
 - sáb 26 out 2024 16:08:24 -03
+
