@@ -32,7 +32,7 @@ Thirty second prayer meeting and Bible study of 2024
 - Saúde da Stéph
 - Saúde do Piet.
 - Meus pais 
-- Pelo seu Demer. (melhoras...)
+- Pelo seu Dem. (melhoras...)
 
 - Pedidos:
 - Saúde do Bren.
@@ -129,3 +129,4 @@ Thirty second prayer meeting and Bible study of 2024
 
 - sáb 07 set 2024 18:23:22 -03
 - VRFdS
+ 
