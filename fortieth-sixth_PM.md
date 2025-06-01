@@ -1,4 +1,4 @@
-## title: Forty-sixth PM
+## title: Fortieth-sixth PM
 
 ## sáb 14 dez 2024 14:52:37 -03
 
@@ -16,7 +16,7 @@ Forty-sixth prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-### Forty-sixth reunião de oração
+### Fortieth-sixth reunião de oração
 
 - Prayer meeting
 
