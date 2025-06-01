@@ -1,4 +1,4 @@
-## title: Forty-fifth PM
+## title: Fortieth-fifth PM
 
 ## sáb 07 dez 2024 15:33:39 -03
 
@@ -16,7 +16,7 @@ Forty-fifth prayer meeting and Bible study of 2024
 
 ## begin_preview
 
-### Forty-fifth reunião de oração
+### Fortieth-fifth reunião de oração
 
 - Prayer meeting
 
@@ -39,7 +39,7 @@ Forty-fifth prayer meeting and Bible study of 2024
 - Pela mãe do B. e pela saúde (ouvido melhor)
 - Agradecer pela oração durante a semana (K. e Le) seguraram a "peteca"
 - Pela vida da K. (atitude positiva em relação 
-- Pela geração mais nova (B., Dal, K.)
+- Pela geração mais nova (B., Dal., K.)
 
 - Pedidos
 
@@ -57,8 +57,8 @@ Forty-fifth prayer meeting and Bible study of 2024
 - Reflexão sobre as reuniões do Grupo 
 - No ano de 2024...
 
-- Le
-- Le esse ano fez muitas anotações acerca da Bíblia e estudos bíblicos...
+- Le.
+- Le. esse ano fez muitas anotações acerca da Bíblia e estudos bíblicos...
 - O ponto forte foi esse grupo (para orar, e meditar diante da Palavra de Deus)
 - Não somente pelo conteúdo... 
 - O Evangelho é urgente... 
@@ -76,7 +76,7 @@ Forty-fifth prayer meeting and Bible study of 2024
 - Exemplo: Os Gigantes...
 - Engenharia genética??? Tirei algumas dúvidas
 
-- La
+- La.
 - Primeiros contatos com V. despertou-me para conhecer mais a Deus
 - Versículo (O temor do Senhor é o princípio da Sabedoria...)
 - "Esse Deus invisível se revela a nós"
