@@ -33,6 +33,7 @@ Thirty eighth prayer meeting and Bible study of 2024
 - Mas, deixo uma tarefinha para fazerem durante a semana
 - Por, favor, além do que já pedi anteriormente em relação aos vídeos,
   comecem a ler o livro de Gênesis...
+ 
 - E não esqueçamos de orar uns pelos outros (...)
 
 - Pedidos de oração:
