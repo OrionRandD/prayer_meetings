@@ -1,5 +1,6 @@
 # roeb_58
 # 2025mar15
+# quinquagésima oitava roeb
 
 - Orações:
 - Agradecimentos:
@@ -58,7 +59,7 @@
 
 - Estiveram nessa reunião (La, Dal, B, Le e V)
 
-- K. e Dey não puderam estar. Continuemos orando por elas...
+- K. e Dey. não puderam estar. Continuemos orando por elas...
 
 - VRFdS
 - Sat Mar 15 06:28:22 PM -03 2025
