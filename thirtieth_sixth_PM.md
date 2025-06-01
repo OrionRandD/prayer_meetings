@@ -86,7 +86,7 @@ Thirty sixth prayer meeting and Bible study of 2024
 - Agradecer pelo acesso à Palavra de Deus
 - Pelo grupo
 - Sobrinha (Stph.) melhor
-- Melhoras do irmão do B. (Bdn)
+- Melhoras do irmão do B. (Bdn.)
 
 - Em seguida pudemos dar prosseguimento ao Estudo Bíblico:
 - Usando gráficos e mapas...
