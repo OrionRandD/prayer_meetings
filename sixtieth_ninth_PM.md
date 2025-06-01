@@ -72,7 +72,7 @@
 - Jitsi para seu smartphone
 - instale o f-droid primeiro
 - faça o download o f-droid aqui:
-- https://f-droid.org/packages/org.jitsi.meet/
+- [f-Droid](https://f-droid.org/packages/org.jitsi.meet/)
 
 - Contudo, a reunião também pode ser acessada através do Firefox 
 - no próprio celular. Mas o google também vai reclamar se tentar
