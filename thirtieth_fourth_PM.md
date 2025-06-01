@@ -72,7 +72,6 @@ primeiro Samuel 15:21: mas o povo tomou do despojo ovelhas e bois, o melhor do a
 - primeiro Samuel 15:22: Samuel, porém, disse: Tem, porventura, o Senhor tanto prazer em holocaustos e sacrifícios, como em que se obedeça à voz do Senhor? Eis que o obedecer é melhor do que o sacrificar, e o atender, do que a gordura de carneiros
 - primeiro Samuel 15:23: Porque a rebelião é como o pecado de adivinhação, e a obstinação é como a iniquidade de idolatria. Porquanto rejeitaste a palavra do Senhor, ele também te rejeitou, a ti, para que não sejas rei.
 
-
 - A misericórdia de Deus sobre Acabe!
 - I Rs 21:29
 
@@ -91,7 +90,6 @@ primeiro Samuel 15:21: mas o povo tomou do despojo ovelhas e bois, o melhor do a
 - I Rs 18:46
 
 - Jeú (o rei que Deus usa para cumprir a Palavra dEle contra a casa de Acabe - vingador de Deus)
-
 
 - Nota: A internet do B. caiu ele não pode retornar  :(
 
