@@ -1,8 +1,6 @@
-;; convert it to
-;; sixtieth_fourth_PM.md
-
 # roeb_64
 # 2025apr26
+# sexagésima quarta roeb
 
 - Obs.: O B. vai precisar sair da reunião umas 17:30h
 
