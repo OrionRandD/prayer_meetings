@@ -1,4 +1,4 @@
-## title: Forty-ninth PM
+## title: Fortieth-ninth PM
 
 ## sáb 11 jan 2025 15:47:36 -03
 
@@ -16,7 +16,7 @@ Forty-ninth prayer meeting and Bible study
 
 ## begin_preview
 
-### Forty-ninth reunião de oração
+### Fortieth-ninth reunião de oração
 
 - Prayer meeting
 
