@@ -138,7 +138,7 @@ deve ter acontecido algo de proporções catastróficas nesse período
 
 - Hoje, graças a Deus, todos estavam presentes 
 
-- (B, La, Dey, Dal, K, Le, e V.) 
+- (B., La., Dey., Dal., K., Le., e V.) 
 
 - sáb 18 jan 2025 19:30:19 -03
 
